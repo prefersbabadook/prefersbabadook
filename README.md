@@ -3,7 +3,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=ffc3f5&label=+ㅤbunnies+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=ffdbef&label=+ㅤbunnies+ㅤ)
 
 </div>
 
@@ -14,9 +14,17 @@
   
 </div>
 
+<div align="center">
 
+･ﾟꗯ　　tara　　or　　dreamy　　૮꒰ ⑅ ˊ ། ິ ` ꒱ა
 
+sweetest　　littl　　girl　　in　　da　　whole　　wide　　wrld
 
+irl　　tara　　carpenter　　♡
 
-<img src="https://github.com/user-attachments/assets/664b3911-9836-4340-b8a7-6dd8bc2e389e" width="370" align="center">
+[rentri](https://rentry.co/taracarpenter)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/dreamflasher)
+
+</div>
+
+<p align="center"><img width="350" src="https://github.com/user-attachments/assets/664b3911-9836-4340-b8a7-6dd8bc2e389e"></p>
 
